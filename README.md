@@ -1,0 +1,2 @@
+# Tugas1_Rekayasa-Komputasional_AlgoritmaGenetika_ROSA-RAMADANI_105841105124
+Tugas1_Rekayasa-Komputasional_AlgoritmaGenetika_ROSA RAMADANI_105841105124
